@@ -1,1 +1,2 @@
 # Fernando-Boudourian-SPAC-y-fintech-inversi-n-con-estrategia
+Las SPAC han resurgido como una vía de financiamiento para fintechs que buscan cotizar en bolsa sin los desafíos de una IPO tradicional. Sin embargo, no todas las fusiones generan valor real. La clave está en el análisis riguroso, la transparencia y modelos de negocio sostenibles. Apostar sin estrategia puede convertir esta oportunidad en un riesgo innecesario.
